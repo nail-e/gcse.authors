@@ -2,9 +2,8 @@
 
 _Placeholder Text_
 
-
+----------------------------------------------------------
 ### Authors and their GCSE Works
-
 ----------------------------------------------------------
 
 #### [Caroll Ann Duffy](https://pxld3l74.github.io/gcse.authors/caroll-ann-duffy)
