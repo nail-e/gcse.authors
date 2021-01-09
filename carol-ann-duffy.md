@@ -43,9 +43,6 @@ Titles & Honors       Dame of the British Empire (DBE), Fellow of the Royal Soci
 
 
 
-----------------------------------------------------------
-### Authors and their GCSE Works
-----------------------------------------------------------
 
 #### [Home](https://pxld3l74.github.io/gcse.authors/)
 
