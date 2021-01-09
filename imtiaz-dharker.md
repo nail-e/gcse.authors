@@ -44,7 +44,7 @@ Titles & Honors       Queen's Gold Medal for English Poetry, Chancellor of Newca
 
 
 
-#### [Home](https://pxld3l74.github.io/gcse.authors/.md)
+#### [Home](https://pxld3l74.github.io/gcse.authors/)
 
 #### [Carol Ann Duffy](https://pxld3l74.github.io/gcse.authors/carol-duffy.md)
 >[War Photgrapher](https://pxld3l74.github.io/gcse.authors/war-photgrapher.md)
