@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## GCSE Author Factfiles
 
 You can use the [editor on GitHub](https://github.com/pxld3l74/gcse.authors/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
 
