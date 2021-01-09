@@ -1,7 +1,7 @@
 ## Imtiaz Dharker (1954-)
 ![alt text][carolannduffy]
 
-[carolannduffy]: https://static1.squarespace.com/static/59366da93e00beb2f0d8c83e/59ef840e0cf24e7cce1ef680/5a610b36e4966b69d294f36a/1516310397181/TEST+2.jpg?format=1500w "Carol Ann Duffy"
+[carolannduffy]: https://www.poetryinternational.org/media/resized/0b/2720_portrait_imtiaz_dharker_768x768.jpg "Carol Ann Duffy"
 
 ````
 Full Name             Imtiaz Dharker
