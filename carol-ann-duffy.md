@@ -39,3 +39,21 @@ Titles & Honors       Dame of the British Empire (DBE), Fellow of the Royal Soci
 
 #### Further Reading
 ---------------------
+
+
+
+
+----------------------------------------------------------
+### Authors and their GCSE Works
+----------------------------------------------------------
+
+#### [Home](https://pxld3l74.github.io/gcse.authors/)
+
+#### [Imtiaz Dharker](https://pxld3l74.github.io/gcse.authors/imtiaz-dharker)
+>[Blessing](https://pxld3l74.github.io/gcse.authors/blessing)
+
+#### [JB Priestly](https://pxld3l74.github.io/gcse.authors/jb-priestley)
+>[An Inspector Calls](https://pxld3l74.github.io/gcse.authors/an-inspector-calls)
+
+#### [William Shakespeare](https://pxld3l74.github.io/gcse.authors/shakespeare)
+>[Romeo & Juliet](https://pxld3l74.github.io/gcse.authors/romeo-juliet)
