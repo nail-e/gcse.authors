@@ -16,3 +16,26 @@ Family                Ella Duffy-Benson (Daughter)
 
 Titles & Honors       Dame of the British Empire (DBE), Fellow of the Royal Society of Literature (FRSL) 
 ````
+
+#### Early Life
+---------------------
+
+
+#### Poetry
+---------------------
+
+
+#### Career
+---------------------
+
+
+#### Personal Life
+---------------------
+
+
+#### Notable Works
+---------------------
+
+
+#### Further Reading
+---------------------
