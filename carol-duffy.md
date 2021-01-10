@@ -25,7 +25,7 @@ In school, her talented writing skills were encouraged by her teachers who saw h
 
 #### Poetry
 ---------------------
-
+Duffy's poetry has been considered as controversial by many people yet she strives on with her work. Duffy writes about controversial modern themes such as War, LGBT Rights, Poverty, Globalism, Mental Health and Feminism. Her work has been mostly about modern issues but her earlier work focus on historical themes that coincide with modern themes. Duffy has written Abstract Poetry and Fictional Poetry in her earlier works.
 
 #### Career
 ---------------------
@@ -59,9 +59,13 @@ At 16, she began a relationship with fellow poet and painter Adrian Henri until 
 
 #### Further Reading
 ---------------------
+[Poetry Foundation](https://www.poetryfoundation.org/poets/carol-ann-duffy)
 
+[Encyclopedia Britannica](https://www.britannica.com/biography/Carol-Ann-Duffy)
 
+[Poets.org](https://poets.org/poet/carol-ann-duffy)
 
+[Wikipedia](https://en.wikipedia.org/wiki/Carol_Ann_Duffy)
 
 
 #### [Home](https://pxld3l74.github.io/gcse.authors/)
