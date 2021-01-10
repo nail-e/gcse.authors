@@ -6,7 +6,7 @@ _Placeholder Text_
 ### Authors and their GCSE Works
 ----------------------------------------------------------
 
-#### [Carol Ann Duffy](https://pxld3l74.github.io/gcse.authors/carol-duffy.md)
+#### [Carol Ann Duffy](https://pxld3l74.github.io/gcse.authors/carol-duffy)
 >[War Photgrapher](https://pxld3l74.github.io/gcse.authors/war-photgrapher.md)
 
 #### [Imtiaz Dharker](https://pxld3l74.github.io/gcse.authors/imtiaz-dharker.md)
