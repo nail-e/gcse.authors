@@ -7,13 +7,13 @@ _Placeholder Text_
 ----------------------------------------------------------
 
 #### [Carol Ann Duffy](https://pxld3l74.github.io/gcse.authors/carol-duffy)
->[War Photgrapher](https://pxld3l74.github.io/gcse.authors/war-photgrapher.md)
+>[War Photgrapher](https://pxld3l74.github.io/gcse.authors/war-photgrapher)
 
-#### [Imtiaz Dharker](https://pxld3l74.github.io/gcse.authors/imtiaz-dharker.md)
->[Blessing](https://pxld3l74.github.io/gcse.authors/blessing.md)
+#### [Imtiaz Dharker](https://pxld3l74.github.io/gcse.authors/imtiaz-dharker)
+>[Blessing](https://pxld3l74.github.io/gcse.authors/blessing)
 
-#### [JB Priestly](https://pxld3l74.github.io/gcse.authors/jb-priestley.md)
->[An Inspector Calls](https://pxld3l74.github.io/gcse.authors/an-inspector-calls.md)
+#### [JB Priestly](https://pxld3l74.github.io/gcse.authors/jb-priestley)
+>[An Inspector Calls](https://pxld3l74.github.io/gcse.authors/an-inspector-calls)
 
-#### [William Shakespeare](https://pxld3l74.github.io/gcse.authors/shakespeare.md)
->[Romeo & Juliet](https://pxld3l74.github.io/gcse.authors/romeo-juliet.md)
+#### [William Shakespeare](https://pxld3l74.github.io/gcse.authors/shakespeare)
+>[Romeo & Juliet](https://pxld3l74.github.io/gcse.authors/romeo-juliet)
