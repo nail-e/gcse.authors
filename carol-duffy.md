@@ -42,12 +42,19 @@ At 16, she began a relationship with fellow poet and painter Adrian Henri until 
 #### Notable Works
 ---------------------
 1974 - _Fleshweathercock_
+
 1984 - _War Photgrapher_
+
 1986 - _Loss_
+
 1993 - _Havisham_
+
 1994 - _Standing Female Nude_
+
 1999 - _Anne Hathaway_
+
 1999 - _Elvis's Twin Sister_
+
 2009 - _Last Post_
 
 #### Further Reading
