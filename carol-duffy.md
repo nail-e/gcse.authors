@@ -29,7 +29,9 @@ In school, her talented writing skills were encouraged by her teachers who saw h
 
 #### Career
 ---------------------
+At 15, Duffy had one of her close friends, June Scriven, to submit her poems to a pamphlet publisher _Outpost_. The head editor and bookseller, Bernard Stone, published some of her poems. Adrian Henri, her later boyfriend, inspired her works and gave her "confidence" and that "he was great, very heady and never faithful." In the University of Liverpool, she took Philosphy and Liberal Arts earning a Degree in Philosophy and Bachoroletter in the Latter. She preformed and help write plays in the Liverpool Playhouse and later winning the National Poetry Competition in 1983. She briefly worked as a poetry critic for _The Guardian_ for a year.
 
+In 1999, she was elected as a Fellow of the Royal Society of Literature. In 2009, after the death of Andrew Motion, she was appointed as the Poet Laurate of the United Kingdom. Later that year, she recieved a Honorary Doctorate from Herriott Wyatt University. A year later, she was granted Damehood by Queen Elizabeth II. In 2015 Duffy was elected as a Honorary Fellow of the British Academy. 
 
 #### Personal Life
 ---------------------
