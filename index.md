@@ -14,5 +14,5 @@ _Attribute the Text Taken here to the orginal Author_
 >[War Photgrapher](https://pxld3l74.github.io/gcse.authors/war-photgrapher)
 
 #### [Imtiaz Dharker](https://pxld3l74.github.io/gcse.authors/imtiaz-dharker)
->[Blessing](https://pxld3l74.github.io/gcse.authors/blessing)
+>[Blessing](https://pxld3l74.github.io/gcse.authors/blessing1)
 
