@@ -57,7 +57,7 @@ Dharker describes herself as a "Scottish Muslim Calvanist". Her Pakistani backgr
 
 #### [Home](https://pxld3l74.github.io/gcse.authors/)
 
->[Blessing](https://pxld3l74.github.io/gcse.authors/blessing)
+>[Blessing](https://pxld3l74.github.io/gcse.authors/blessing1)
 
 #### [Carol Ann Duffy](https://pxld3l74.github.io/gcse.authors/carol-duffy)
 >[War Photgrapher](https://pxld3l74.github.io/gcse.authors/war-photgrapher)
