@@ -39,5 +39,5 @@ he earns his living and they do not care.
 #### [Carol Ann Duffy](https://pxld3l74.github.io/gcse.authors/carol-duffy)
 
 #### [Imtiaz Dharker](https://pxld3l74.github.io/gcse.authors/imtiaz-dharker)
->[Blessing](https://pxld3l74.github.io/gcse.authors/blessing)
+>[Blessing](https://pxld3l74.github.io/gcse.authors/blessing1)
 
