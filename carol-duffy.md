@@ -75,8 +75,3 @@ At 16, she began a relationship with fellow poet and painter Adrian Henri until 
 #### [Imtiaz Dharker](https://pxld3l74.github.io/gcse.authors/imtiaz-dharker)
 >[Blessing](https://pxld3l74.github.io/gcse.authors/blessing)
 
-#### [JB Priestly](https://pxld3l74.github.io/gcse.authors/jb-priestley)
->[An Inspector Calls](https://pxld3l74.github.io/gcse.authors/an-inspector-calls)
-
-#### [William Shakespeare](https://pxld3l74.github.io/gcse.authors/shakespeare)
->[Romeo & Juliet](https://pxld3l74.github.io/gcse.authors/romeo-juliet)
