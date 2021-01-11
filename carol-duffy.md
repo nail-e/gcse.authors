@@ -43,7 +43,7 @@ At 16, she began a relationship with fellow poet and painter Adrian Henri until 
 ---------------------
 1974 - _Fleshweathercock_
 
-1984 - _War Photgrapher_
+1985 - _War Photgrapher_
 
 1986 - _Loss_
 
