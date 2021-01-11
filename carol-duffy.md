@@ -70,6 +70,8 @@ At 16, she began a relationship with fellow poet and painter Adrian Henri until 
 
 #### [Home](https://pxld3l74.github.io/gcse.authors/)
 
+>[War Photgrapher](https://pxld3l74.github.io/gcse.authors/war-photgrapher)
+
 #### [Imtiaz Dharker](https://pxld3l74.github.io/gcse.authors/imtiaz-dharker)
 >[Blessing](https://pxld3l74.github.io/gcse.authors/blessing)
 
