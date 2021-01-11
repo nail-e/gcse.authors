@@ -39,9 +39,3 @@ over their small bones.
 
 #### [Carol Ann Duffy](https://pxld3l74.github.io/gcse.authors/carol-duffy)
 >[War Photgrapher](https://pxld3l74.github.io/gcse.authors/war-photgrapher)
-
-#### [JB Priestly](https://pxld3l74.github.io/gcse.authors/jb-priestley)
->[An Inspector Calls](https://pxld3l74.github.io/gcse.authors/an-inspector-calls)
-
-#### [William Shakespeare](https://pxld3l74.github.io/gcse.authors/shakespeare)
->[Romeo & Juliet](https://pxld3l74.github.io/gcse.authors/romeo-juliet)
