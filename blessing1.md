@@ -33,9 +33,9 @@ as the blessing sings
 over their small bones.
 
 ````
-#### [Home](https://pxld3l74.github.io/gcse.authors/)
+#### [Home](https://nail-e.github.io/gcse.authors/)
 
-#### [Imtiaz Dharker](https://pxld3l74.github.io/gcse.authors/imtiaz-dharker)
+#### [Imtiaz Dharker](https:/nail-e.github.io/gcse.authors/imtiaz-dharker)
 
-#### [Carol Ann Duffy](https://pxld3l74.github.io/gcse.authors/carol-duffy)
->[War Photgrapher](https://pxld3l74.github.io/gcse.authors/war-photgrapher)
+#### [Carol Ann Duffy](https://nail-e.github.io/gcse.authors/carol-duffy)
+>[War Photgrapher](https://nail-e.github.io/gcse.authors/war-photgrapher)
