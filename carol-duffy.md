@@ -68,10 +68,10 @@ At 16, she began a relationship with fellow poet and painter Adrian Henri until 
 [Wikipedia](https://en.wikipedia.org/wiki/Carol_Ann_Duffy)
 
 
-#### [Home](https://pxld3l74.github.io/gcse.authors/)
+#### [Home](https://nail-e.github.io/gcse.authors/)
 
->[War Photgrapher](https://pxld3l74.github.io/gcse.authors/war-photgrapher)
+>[War Photgrapher](https://nail-e.github.io/gcse.authors/war-photgrapher)
 
-#### [Imtiaz Dharker](https://pxld3l74.github.io/gcse.authors/imtiaz-dharker)
->[Blessing](https://pxld3l74.github.io/gcse.authors/blessing1)
+#### [Imtiaz Dharker](https://nail-e.github.io/gcse.authors/imtiaz-dharker)
+>[Blessing](https://nail-e.github.io/gcse.authors/blessing1)
 
