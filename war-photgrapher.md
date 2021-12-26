@@ -34,10 +34,10 @@ From the aeroplane he stares impassively at where
 he earns his living and they do not care.
 
 ````
-#### [Home](https://pxld3l74.github.io/gcse.authors/)
+#### [Home](https://nail-e.github.io/gcse.authors/)
 
-#### [Carol Ann Duffy](https://pxld3l74.github.io/gcse.authors/carol-duffy)
+#### [Carol Ann Duffy](https://nail-e.github.io/gcse.authors/carol-duffy)
 
-#### [Imtiaz Dharker](https://pxld3l74.github.io/gcse.authors/imtiaz-dharker)
->[Blessing](https://pxld3l74.github.io/gcse.authors/blessing1)
+#### [Imtiaz Dharker](https://nail-e.github.io/gcse.authors/imtiaz-dharker)
+>[Blessing](https://nail-e.github.io/gcse.authors/blessing1)
 
