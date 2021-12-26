@@ -55,9 +55,9 @@ Dharker describes herself as a "Scottish Muslim Calvanist". Her Pakistani backgr
 
 [The Guardian](https://www.theguardian.com/books/imtiaz-dharker)
 
-#### [Home](https://pxld3l74.github.io/gcse.authors/)
+#### [Home](https://nail-e.github.io/gcse.authors/)
 
->[Blessing](https://pxld3l74.github.io/gcse.authors/blessing1)
+>[Blessing](https://nail-e.github.io/gcse.authors/blessing1)
 
-#### [Carol Ann Duffy](https://pxld3l74.github.io/gcse.authors/carol-duffy)
->[War Photgrapher](https://pxld3l74.github.io/gcse.authors/war-photgrapher)
+#### [Carol Ann Duffy](https://nail-e.github.io/gcse.authors/carol-duffy)
+>[War Photgrapher](https://nail-e.github.io/gcse.authors/war-photgrapher)
