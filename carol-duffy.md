@@ -6,7 +6,7 @@
 ````
 Full Name             Dame Carol Ann Duffy
 
-Date of Birth         December 23, 1955 (65 years old)
+Date of Birth         December 23, 1955 (66 years old)
 
 Location of Birth     Glasgow, Scotland
 
